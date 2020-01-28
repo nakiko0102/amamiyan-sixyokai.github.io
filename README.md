@@ -1,0 +1,1 @@
+# amamiyan-sixyokai.github.io
